@@ -1,1 +1,0 @@
-# typerracer-hack
